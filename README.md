@@ -1,5 +1,6 @@
 # 𓎠𓎠 READ B4 INT ♡ 𓎠𓎠
-<img width="500" height="500" alt="13840470_1efe1" src="https://github.com/user-attachments/assets/489506b5-eac7-42a6-a5cd-4e530a06f896" />
+<img width="300" height="300" alt="ezgif-536e551d0bb49999" src="https://github.com/user-attachments/assets/ad3b76df-9b74-4323-a6d3-b4f8724ab9b5" />
+
 
 
 my name is either jaxx or juno (idm which you use) !
@@ -21,6 +22,7 @@ $\color{gold}\text{hazbin hotel/helluva boss fans can int but with extreme care.
 
 ╰┈> $\color{red}\text{this however does not go with valentino fans. you guys will be blocked.}$
 
-<img width="500" height="500" alt="13840543_176c6" src="https://github.com/user-attachments/assets/e08382cd-e8aa-456d-a8fb-14768c2047c7" />
+<img width="300" height="300" alt="ezgif-509532fafd9bcb77" src="https://github.com/user-attachments/assets/90d470f2-fbbb-4861-9d56-3d53c62fc453" />
+
 
 # THANK YOU FOR READING !! ♡
