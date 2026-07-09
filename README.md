@@ -1,4 +1,4 @@
-# 𓎠𓎠 INFORMANTION ABT ME ♡ 𓎠𓎠
+# 𓎠𓎠 READ B4 INT ♡ 𓎠𓎠
 <img width="500" height="500" alt="13840470_1efe1" src="https://github.com/user-attachments/assets/489506b5-eac7-42a6-a5cd-4e530a06f896" />
 
 
