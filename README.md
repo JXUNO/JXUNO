@@ -18,6 +18,8 @@ i do tend to be awkward and may have trouble talking, so please be patient and i
 
 $\color{red}\text{i HEAVILY recommend looking at my DNI for more but TRASH believers, pro/darkshippers, TCOAAL fans will be instantly blocked.}$
 
+$\color{#f54263}\text{please don't ask if i can make a party because i'm a 4 tier 💔 i'm mainly here to AFK and chill}$
+
 $\color{gold}\text{hazbin hotel/helluva boss fans can int but with extreme care.}$
 
 ╰┈> $\color{red}\text{this however does not go with valentino fans. you guys will be blocked.}$
