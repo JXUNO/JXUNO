@@ -7,7 +7,7 @@ my name is either jaxx or juno (idm which you use) !
 
 $\color{#d92518}\text{i'm 18 y.o, please int appropiately .}$
 
-i'm in a lot of fandoms and have many interestes but my mains are: $\color{blue}\text{FNAF, My Little Pony, TAWOG, Undertale, Deltarune, Danganronpa, Cult of the Lamb, Vtubers, Dandy's world (not in support of qwel.)}$
+i'm in a lot of fandoms and have many interestes but my mains are: $\color{blue}\text{FNAF, My Little Pony, TAWOG, Undertale, Deltarune, Danganronpa, Cult of the Lamb, Vtubers,}$
 $\color{blue}\text{Dolly's factory, Poppy's playtime and Animal Hospital (Anamoly)}$
 
 ---
