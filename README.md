@@ -1,5 +1,6 @@
+
 # 𓎠𓎠 READ B4 INT ♡ 𓎠𓎠
-<img width="300" height="300" alt="ezgif-536e551d0bb49999" src="https://github.com/user-attachments/assets/ad3b76df-9b74-4323-a6d3-b4f8724ab9b5" />
+<img width="300" height="300" alt="picmix com_13823921" src="https://github.com/user-attachments/assets/ec7b6947-e25b-44ee-9e8c-185bb2e01c22" />
 
 ## 𓎠𓎠 MINI INTRO ABT ME ♡ 𓎠𓎠
 
@@ -8,7 +9,7 @@ my name is either jaxx or juno (idm which you use) !
 $\color{#d92518}\text{i'm 18 y.o, please int appropiately .}$
 
 i'm in a lot of fandoms and have many interestes but my mains are: $\color{blue}\text{FNAF, My Little Pony, TAWOG, Undertale, Deltarune, Danganronpa, Cult of the Lamb, Vtubers,}$
-$\color{blue}\text{Dolly's factory, Poppy's playtime and Animal Hospital (Anamoly)}$
+$\color{blue}\text{Dolly's factory, Poppy's playtime and Dandy's world (not in support of Qwel.)}$
 
 ---
 
@@ -36,7 +37,9 @@ $\color{#ffaa3b}\text{hazbin hotel/helluva boss fans can int but with extreme ca
 
 ╰┈> $\color{#d92518}\text{this however does not go with valentino fans. you guys will be blocked.}$
 
-<img width="300" height="300" alt="ezgif-509532fafd9bcb77" src="https://github.com/user-attachments/assets/90d470f2-fbbb-4861-9d56-3d53c62fc453" />
+<img width="300" height="300" alt="picmix com_14132034" src="https://github.com/user-attachments/assets/d2a940c0-d4dd-4173-8244-7aa525d563b7" />
+
+you're so cute NightClub oh my god i love you guys so much aw awawwww
 
 ---
 
